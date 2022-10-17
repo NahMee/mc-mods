@@ -1,4 +1,4 @@
 # mc-mods
 Minecraft mods
 
-[STUUUUUFFFFFFF](https://drive.google.com/file/d/1b_z6XiUtawgnqP-zpbz2VZALxTD8kJxg/view?usp=sharing)
+[STUUUUUFFFFFFF](https://drive.google.com/file/d/1QQg0O90fKDQN2k1SoVA5D2ihHV9Mdo4Z/view?usp=sharing)
